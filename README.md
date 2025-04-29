@@ -1,0 +1,2 @@
+# Aciklama
+MeritKing Açıklama Okuyunuz
